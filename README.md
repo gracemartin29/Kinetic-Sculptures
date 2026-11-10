@@ -1,1 +1,1 @@
-# Kinetic-Sculptures
+# Kinetic Sculptures
